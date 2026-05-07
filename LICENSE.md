@@ -1,4 +1,4 @@
-
+new Scripts for blade ball is the best blade ball Script, featuring instant win and no clip. Safe and powerful for all your needs.
 
 
 
